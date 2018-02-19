@@ -1,3 +1,4 @@
 Jake Gyllenhaal
-Will Smith
+Shia LaBeouf
 Jack Nicholson
+Charlize Theron
