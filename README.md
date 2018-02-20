@@ -1,4 +1,3 @@
-Jake Gyllenhaal
-Shia LaBeouf
-Jack Nicholson
-Charlize Theron
+Mario Kart
+Crash
+The King Of Fighters 97'
